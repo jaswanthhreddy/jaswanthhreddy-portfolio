@@ -1,1 +1,1 @@
-Project Link: https://jaswanthhreddy.github.io/jaswanthhreddy-portfolio/
+Link: https://jaswanthhreddy.github.io/jaswanthhreddy-portfolio/
